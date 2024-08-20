@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **praveen.saw@outlook.com**
 
-- 📄 Know about my experiences [https://praveen8409.github.io/Resume/]([https://praveen8409.github.io/Resume/](https://ninjasfiles.s3.amazonaws.com/praveen1.pdf_1735180c44b1d814c14c6ab6de013d68/praveen1.pdf))
+- 📄 Know about my experiences [Click here](https://ninjasfiles.s3.amazonaws.com/praveen1.pdf_1735180c44b1d814c14c6ab6de013d68/praveen1.pdf)
 
 - ⚡ Fun fact **I am funny😜**
 
